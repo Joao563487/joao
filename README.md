@@ -4,4 +4,4 @@
 _jojo e fefe_
 
 
-![PELE](https://tenor.com/pt-BR/view/the-king-pele-the-champion-the-leader-goat-gif-20335686)
+![PELE](https://media1.tenor.com/m/uTN5ERhjH3IAAAAC/the-king-pele.gif)
